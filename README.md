@@ -58,6 +58,3 @@
     Mete Turkan
     linkedIn : linkedin.com/in/mete-turkan
     Inst : m_trkn46
-
-    Enjoy your music!
-
